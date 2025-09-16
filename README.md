@@ -1,1 +1,1 @@
-THe canas loft
+THe canvas loft
